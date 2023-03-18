@@ -1,0 +1,3 @@
+# story
+
+for educational perpous
